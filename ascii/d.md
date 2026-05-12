@@ -8,5 +8,5 @@ D     D
 D    D
 DDDDD
 ```
-Bold D drums at dawn,
-Deep curves carry on.
+Bold D drums through the night,
+Deep curves glow in the light.
